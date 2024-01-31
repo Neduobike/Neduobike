@@ -1,4 +1,4 @@
-- #smile Hi, I’m @Neduobike
+-  Hi, I’m @Neduobike
 - I’m interested in Data Analytics
 -  I’m currently learning Data Analytics and i just graduated
 - How to reach me https://www.twitter.com/ObikeNedu
