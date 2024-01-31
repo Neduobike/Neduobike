@@ -3,4 +3,4 @@
 - 🧠 I’m currently learning Data Analytics and i just graduated
 - 💬 You can reach me via [Twitter](https://www.twitter.com/ObikeNedu)
 -👀 Pronouns: His/He
-- ⚡ Fun fact: Love Gaming, extracting from different fields especially football, Having conversations
+- ⚡ Fun fact: Love Gaming, discussing about different fields especially football, Having conversations
