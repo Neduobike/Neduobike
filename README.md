@@ -1,6 +1,6 @@
 -  Hi, I’m @Neduobike
 - I’m interested in Data Analytics
 -  I’m currently learning Data Analytics and i just graduated
-- How to reach me https://www.twitter.com/ObikeNedu
+- How to reach me using [Twitter] (https://www.twitter.com/ObikeNedu)
 - Pronouns: His/He
 - ⚡ Fun fact: Love Gaming, extracting from different fields especially football, Having conversations
